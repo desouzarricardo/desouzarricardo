@@ -1,4 +1,4 @@
-### What's up dudes 😉
+### What's up dudes 😉 I'm Ricardo Gonçalves
 
 <div align="center">
   <a href="https://github.com/desouzarricardo">
