@@ -1,4 +1,4 @@
-What's up dudes, I'm Ricardo Gonçalves 😉 
+Hi there, I'm Ricardo Gonçalves 😉 
 
 ##
 
